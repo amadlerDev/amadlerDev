@@ -1,0 +1,5 @@
+- 👋 Hi, Amaztia Adler here.
+- 👀 I’m interested in developing and cyber security.
+- 🌱 I’m currently Wev Developer in Channel 20 and Student of Computer Science at The Open University
+- 💞️ I’m looking to collaborate on companies and projects of value significance.
+- 📫 reach me in amadler.dev@gmail.com.
